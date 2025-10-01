@@ -119,7 +119,7 @@ the Three Kingdoms Problem is expected to follow patterns of exclusive applicati
 "positive" inward from scientific products, limited and controlled commerce between the kingdoms, 
 and "negative" application outward in cases of perceived malice from one kingdom to another. Hacking 
 systems is truthfully only as scientifically impressive as success in solving search problems (vulnerabilities), 
-as well as the spirit of mores and alliances in exploitation past the finished search. Republican 
+nevermind the spirit of mores and alliances in exploitation past the finished search. Republican 
 logic suffers from an arts problem, when fundamentals are withheld while variants, with same 
 purpose and different target, are pushed and pulled. The impression is the initiative to 
 act in the direction of obfuscation and dismantlement. Consider this case: a spammer and a 
