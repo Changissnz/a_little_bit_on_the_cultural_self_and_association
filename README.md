@@ -39,7 +39,7 @@ not from and for the minisculinity of specifics, of the "genuine" quality of thi
 distribution, in blanket form, that will always elicit sentiments of their goodness, 
 based on their gifting usually in material form that was intended to serve as proof, 
 in-and-of the objects. And the labelling of morality is established as connection 
-between giver (the ruling administrators), the "source" really, and object/s to be gifted. 
+between giver (the ruling administrators), the "source" really, and object/s gifted. 
 Note that the questioning of quality for genuine fit is a stall on proceedings, wanted 
 from the person (the giver), in cases of "business as usual". The reasoning here serves 
 as explanation for highly critical treatments of scientist types (moreso than the 
