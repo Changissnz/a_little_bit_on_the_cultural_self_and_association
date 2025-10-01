@@ -1,6 +1,7 @@
 A short essay on self and association; Americentric. 
 
-## A Little Bit On The Cultural Self and Association 
+## A Little Bit On The Cultural Self and Association  
+## written by Richard Pham  
 
 The self. you and I would say to each other, is based around the individual, 
 that is, you and I are discrete entities. But during dialogue, the sentiment
