@@ -104,8 +104,8 @@ compatibilities with Old World hierarchies. A China man would have to cross the
 Muslim-dominated  Middle East, the democratic kingdoms of the Jewish people, gypsies and 
 other companies (mainly indigenous) to be able to be on par with the predominant 
 Anglo-Germanic American establishment. This should not be interpreted as a geography problem: 
-there is the alternative of crossing the Pacific Ocean, where evidence of effects is of  
-much more commercial than anything else. Cultural stubbornness is only part of the problem: 
+there is the alternative of crossing the Pacific Ocean, where evidence of effects is of 
+much more commerce than anything else. Cultural stubbornness is only part of the problem: 
 never mind the democratic synthesizers that spill ruins of duplicity as contagiously as 
 statist policy allows them. This description I have just given is an Americentric problem. 
 Note how I used the "American" term as base instead of USA. America has a Columbian connotation 
